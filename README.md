@@ -5,3 +5,6 @@ Olá ! Bem vindo ao meu livro de receitas 👋🏻
 - BoeufBourguignon 🥩
 - Feijão
 - Arroz
+- Macarrão 🍝
+- Torta de palmito 🥧
+- Costelinha barbecue 🐖
