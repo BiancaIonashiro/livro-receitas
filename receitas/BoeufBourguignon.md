@@ -24,4 +24,4 @@ Modo de preparo:Frite o bacon até derreter toda a gordura e acrescente alho pic
 Em outra panela, coloque o vinho e todos os outros ingredientes (exceto as cebolinhas, o champignon e a salsa). Deixe ferver em fogo baixo por uns 20 minutos. Coe o vinho para tirar os legumes, temperos e ervas e jogue o líquido na panela com a carne e o bacon já fritos. Mexa e deixe cozinhar em fogo baixo por cerca de 3h.
 Acrescente as cebolas já caramelizadas e os champignons e deixe cozinhas por mais 30 minutos. Teste o sal e a pimenta. Acrescente a noz moscada. Veja se a consistência está adequada - não pode estar seco, nem muito líquido. Por fim, jogue a salsa picada por cima e sirva na própria panela.
 Acompanhamento:Arroz e batata vão muito bem. Pode-se comer com pão, como fazem na França.
-Vinho:Diferentes tintos podem funcionar. O clássico são os pinot noir da Borgonha, também utilizados para cozinhar a carne.
+Vinho:Diferentes tintos podem funcionar. O clássico são os pinot noir da Borgonha, também utilizados para cozinhar a carne.🎇
