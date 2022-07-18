@@ -8,3 +8,4 @@ Olá ! Bem vindo ao meu livro de receitas 👋🏻
 - Macarrão 🍝
 - Torta de palmito 🥧
 - Costelinha barbecue 🐖
+- Pizza 🍕
