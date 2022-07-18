@@ -1,14 +1,14 @@
-Boeuf Bourguignon :Meet:
+Boeuf Bourguignon 🥩
 
 Ingredientes:
-1 kg filé mignon
-1 garrafa vinho tinto de boa qualidade (esqueça uva americana e aposte nos mais tânicos)
-1 cebola picada em pedaços grandes
-1 cenoura em cubos
-4 dentes de alho amassados
+1 kg filé mignon 🥩
+1 garrafa vinho tinto de boa qualidade (esqueça uva americana e aposte nos mais tânicos) 🍷
+1 cebola picada em pedaços grandes 🧅
+1 cenoura em cubos 🥕
+4 dentes de alho amassados 🧄
 4 cravos
 4 grãos de zimbro
-1 anis estrelado
+1 anis estrelado ⭐
 100g de bacon em cubos 🐖
 1 colher de alho picado
 1 bouquet com louro, alecrim e tomilho (pode colocar outras ervas para carne)
