@@ -12,3 +12,4 @@ Olá ! Bem vindo ao meu livro de receitas 👋🏻
 - Burrito 🌯
 - Pizza 🍕
 - Ovo 🥚
+- Cocada 🥥
