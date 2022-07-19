@@ -11,3 +11,4 @@ Olá ! Bem vindo ao meu livro de receitas 👋🏻
 - Tacos 🌮
 - Burrito 🌯
 - Pizza 🍕
+- Ovo 🥚
