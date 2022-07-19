@@ -10,3 +10,4 @@ Olá ! Bem vindo ao meu livro de receitas 👋🏻
 - Costelinha barbecue 🐖
 - Tacos 🌮
 - Burrito 🌯
+- Peixe 🐟
