@@ -10,8 +10,4 @@ Olá ! Bem vindo ao meu livro de receitas 👋🏻
 - Costelinha barbecue 🐖
 - Tacos 🌮
 - Burrito 🌯
-<<<<<<< HEAD
 - Pizza 🍕
-=======
-- Peixe 🐟
->>>>>>> 52bd8511493039a9b926e5de49cb9327f5d24495
